@@ -15,6 +15,8 @@ Luis Muriel from Atalanta B.C.
 
 The forward was the 3rd highest goal scorer in the Serie A last season with 22 goals to his name. 
 And in my opinion, he's the best alternative to Harry Kane & the stats don't lie. But at 30 years old, he is only a short term alternative
+![image](https://github.com/atanuw74/harry-kane-project/assets/87438993/ebc97958-ab3d-4dcc-b555-a1abd565a75b)
+
 
 
 LONG TERM ALTERNATIVES: 
