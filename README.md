@@ -24,14 +24,24 @@ LONG TERM ALTERNATIVES:
 1. Lautaro Martinez from Inter Milan 
 
 The 24 year-old forward has been at Inter since 2018 and has been putting in good performances during his tenure there. Last season in the Serie A, he had 27 goal involvements. 
-Still only 24, he's nowhere near his best yet. 
+Still only 24, he's nowhere near his best yet.
+
+![image](https://github.com/atanuw74/harry-kane-project/assets/87438993/a5bd9efa-32c7-458a-9bae-8def79a6dddb)
+
 
 2. Kelechi Iheanacho from Leicester City
 
 I feel that Iheanacho has often been in Jamie Vardy's shadow but last season he made a name for himself in that Leicester attack. Didn't have the best start to the season but picked up his from in March 2021 and was unstoppable. 
 Based on stats, he isn't far behind Kane. The only area where he lacks in comparison to Kane is Assists Per 90 but let's be honest, Kane surprised everyone with his assists record last season. 
 
+![image](https://github.com/atanuw74/harry-kane-project/assets/87438993/ffd7257b-d4f4-4354-a08c-28a53be99595)
+
+
 SPECIAL MENTIONS: 
 1. Mauro Icardi from PSG (Age: 28)
+![image](https://github.com/atanuw74/harry-kane-project/assets/87438993/aa5f3393-f3b0-48c1-8f0c-823cd561d68f)
 
-2. Gerard Moreno from Villarreal (Age: 29) 
+
+2. Gerard Moreno from Villarreal (Age: 29)
+![image](https://github.com/atanuw74/harry-kane-project/assets/87438993/c79d8eb4-9fce-4355-a394-87402460e63d)
+
